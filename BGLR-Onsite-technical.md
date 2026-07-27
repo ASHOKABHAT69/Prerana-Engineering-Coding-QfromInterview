@@ -15,8 +15,12 @@ HR1- Onsite kushal nagar office(TWO SENIOR FEMALE EMPLYEES WORKED FOR MROE THAN 
 HR2- At their Manufacturing office(MD of PRERANA took this round)
 1)Tell me about yourself
 2)You worked on python,Trading softwarre, ML and currently working on Deeptech, but that's not we want , our maths is differrent your maths is different.
-3)Which is your best project and how much did you spent on them!??
-4)Our team will get back to you ENDZZ HERE..
+
+3)Traders go full time, they don't join companies, this is not the right place what we work and what you do different.
+
+4)Which is your best project and how much did you spent on them!??
+5)Our team will get back to you
+I did a Handshake 🤝 ENDZZ HERE..
 
 APTITUDE ROUND 
 1) solved 6/10 questions and didn't mark remaing 4 as i didn't knew and in oncampus they grilled me for guessing questions with wrong answers so lefft it blank.
@@ -34,7 +38,7 @@ Interviwer took my resume and spent 30seconds reading top to bottom then,
 7)List Data Structures
 8)How do you add a node , deleting a node.(ALL VERBAL ANSWERS HE DIDN'T ASKED ME ANYOEN TO WRITE)
 9)For a function with 3 arguments if we call that with 2 parameters will it give an error?
-RESUME GIVEN BACK - IT'S DONE
+RESUME GIVEN BACK to me , 🤝 - IT'S DONE
 
 RESULT -
 REJECTED
