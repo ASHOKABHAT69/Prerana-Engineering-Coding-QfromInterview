@@ -11,6 +11,7 @@ HR1- Onsite kushal nagar office(TWO SENIOR FEMALE EMPLYEES WORKED FOR MROE THAN 
 3)what are your intrests
 4)Achivements(since i won 2 consequitive MOCK HIRING CHALLENGES)
 5)Any questions from your side( asked to me)
+Interviewer said the end "INPRESSIVE"
 
 HR2- At their Manufacturing office(MD of PRERANA took this round)
 1)Tell me about yourself
@@ -20,7 +21,7 @@ HR2- At their Manufacturing office(MD of PRERANA took this round)
 
 4)Which is your best project and how much did you spent on them!??
 5)Our team will get back to you
-I did a Handshake 🤝 ENDZZ HERE..
+I initiated a Handshake 🤝 ENDs HERE..
 
 APTITUDE ROUND 
 1) solved 6/10 questions and didn't mark remaing 4 as i didn't knew and in oncampus they grilled me for guessing questions with wrong answers so lefft it blank.
@@ -39,6 +40,12 @@ Interviwer took my resume and spent 30seconds reading top to bottom then,
 8)How do you add a node , deleting a node.(ALL VERBAL ANSWERS HE DIDN'T ASKED ME ANYOEN TO WRITE)
 9)For a function with 3 arguments if we call that with 2 parameters will it give an error?
 RESUME GIVEN BACK to me , 🤝 - IT'S DONE
+
+I answered all the questions Right and I once again reconfirmed all answers after my interview and it was all right. 
+
+I Gave all the right answers to their questions still got rejected.
+
+
 
 RESULT -
 REJECTED
